@@ -1,5 +1,5 @@
 ## Hello, my name is Makauly! 
-### Welcome to my GitHub profile! 👋
+### Welcome to my GitHub profile! :smile:
 
 
 
